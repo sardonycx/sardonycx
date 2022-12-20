@@ -13,4 +13,6 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: dolphins sleep with one eye open
+- ♫  music genre: pop
+- 🧗‍♂️ hobie: singing, reading
 -->this could be a total mess
